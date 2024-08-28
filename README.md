@@ -1,0 +1,3 @@
+Resources for project Java Script for Dummies(book) you tube video(ultimate guide to javascript), class instruction, MDN Web Docs, Stackoverflow
+
+My assignment is very late. I was very sick at the very end of june when we first learned these things, I had a bunch of things go on since I started this class. I tried my very best to learn what I missed and to catch up. I wanted to stay and not quite though everything was falling apart around me. I hope that you accept my work late. Thank you 
